@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SKeggsNbeans or Emmerson
-- 👀 I’m interested in modified cars and paintball
+- 👀 I’m interested in modified cars and sleeping-in
 - 🌱 I’m currently learning React
 - 💞️ I’m looking to collaborate on everything LOL
 - 📫 How to reach me Slack or Discord
